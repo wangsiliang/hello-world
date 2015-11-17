@@ -5,7 +5,7 @@ A small step in GitHub!
 
 Hi, guys:
 
-I am an enthusiasticprogrammer.
+I am an enthusiastic programmer.
 
 Nice to meet U!
 
