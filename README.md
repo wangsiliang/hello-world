@@ -7,6 +7,6 @@ Hi, guys:
 
 I am an enthusiasticprogrammer.
 
-Nice to Meet you!
+Nice to meet U!
 
 Siliang
